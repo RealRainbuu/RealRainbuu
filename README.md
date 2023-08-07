@@ -10,6 +10,4 @@
 
 ![image](https://github.com/RealRainbuu/RealRainbuu/assets/77862418/ce9fc987-c1be-400f-8966-ada941f3e1de)
 
-![Rainbuu != Ranboo](https://github.com/RealRainbuu/RealRainbuu/assets/77862418/1d40ed4b-ac61-4377-8daa-7a06520fa825)
-
 ### No, my username has nothing to do with Ranboo. I have never watched one of his videos. According to Namemc, I had my username on Minecraft first.
